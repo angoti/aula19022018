@@ -1,6 +1,6 @@
 # aula19022018
 Resolução de exercícios 
 
-https://classroom.google.com/c/MTExNTIyOTYxNjVa/a/MTExNjUyMzI5MDNa/submissions/by-status/and-sort-name/list
+https://drive.google.com/open?id=10EFFGouWsRP2L20VhORG10P2wOPzHIw3&authuser=0
 
-https://classroom.google.com/c/MTExNTIyOTYxNjVa/a/MTExODczMDA0NzFa/submissions/by-status/and-sort-name/list
+https://drive.google.com/open?id=11g-ykBb_z6kNTcLdt9IqEqSl33UTxWXZ&authuser=0
